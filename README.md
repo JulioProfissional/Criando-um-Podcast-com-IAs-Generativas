@@ -1,9 +1,6 @@
 # Criando-um-Podcast-com-IAs-Generativas
 🎙️ “MemeMente Artificial” Onde a IA gera risadas e conteúdo viral.
 
-Boa tarde! Claro, posso te ajudar com isso. Vamos criar um conceito de **podcast sobre IAs generativas de memes**, com foco em humor, cultura digital e tecnologia. Abaixo está uma proposta de nome, formato, roteiro básico e ideias de episódios.
-
----
 
 ## 🎙️ Nome do Podcast:
 
